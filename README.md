@@ -2,7 +2,7 @@
 
 🎓 **MSc Artificial Intelligence | University of East London**  
 📍 Currently based in the UK | 🌍 Exploring the intelligent edge of data and design  
-📧 Let's Connect: [poojithavinny@example.com](mailto:poojithavinny@example.com) | [LinkedIn](https://www.linkedin.com/in/poojitha)
+📧 Let's Connect: [poojithavinny@example.com](mailto:poojithavinny@example.com) | [LinkedIn](https://www.linkedin.com/in/yemineni-poojitha129)
 
 ---
 
